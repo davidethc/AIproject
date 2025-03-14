@@ -1,2 +1,4 @@
 # AIproject
-Business AI
+## AI AGENCI
+### COMO PUEDO CREAR DE UNA IDEA ALGO SOLIDO
+
